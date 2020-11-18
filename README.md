@@ -14,3 +14,9 @@ https://docs.google.com/forms/d/e/1FAIpQLSe7FIPVNW_wxs7WJNGu0XoarHlN52Wh1ddCcdFs
 Deadline for submitting the excercise 10 days from the day after the session
 
 N.B: 1 mark is equivalent to 3.3% of final exam
+
+
+
+### Probability Games
+https://quizizz.com/join/quiz/5ad9e57dbe10ac0019ff29e5/start
+https://quizizz.com/join/quiz/5bf6443f99acc1001a29f9d7/start
